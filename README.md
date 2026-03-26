@@ -1,6 +1,6 @@
   <p align="center"> <dir="auto"> <img src="https://komarev.com/ghpvc/?username=suicideroom&label=𝄞&color=1b2324&style=flat&base=1000"> </dir> </p>
   
-  <p align="center">ㅤ <img src="https://files.catbox.moe/c8fey6.gif" width=400 height=600>ㅤ</p>
+  <p align="center">ㅤ <img src="https://i.postimg.cc/fbYRT0zm/Untitled283_20240427223754.png" width=400 height=600>ㅤ</p>
 
  <p align="center"> <sub> ilmbf </sub>
 
@@ -15,6 +15,6 @@
 <br>
   <sub> i block freely :) </sub>
 
-  <img src="https://files.catbox.moe/kf03bl.png" width=200 height=300>
+  <img src="https://64.media.tumblr.com/7999b99c3d88a2b633de24bdbc811fcc/0a844093c4702aee-3f/s100x200/c2df61b854e82858c3d3165ff9e2f57f4c9a6b76.pnj" width=200 height=300>
     
 
