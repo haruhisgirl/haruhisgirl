@@ -12,5 +12,5 @@
 
 <sub> anti-censorship / profic </sub>
 <br>
-  <sub> no i am NOT tcc. idc if tcc interacts but we will NOT be friends </sub>
+  <sub> no i am NOT tcc. idc if tcc interacts but we will NOT become close. i DO NOT condone my fav characters actions irl!!!!!!!!! no i dont like school shoothers or murderers pls dont ask that </sub>
 
